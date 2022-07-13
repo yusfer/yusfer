@@ -17,6 +17,6 @@ Here are some ideas to get you started:
 
 Creativity is the goal.
 
-Hard-working is the path.
+Hardworking is the way.
 
 Beer is also the goal.
