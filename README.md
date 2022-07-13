@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Creativity is the goal.
+
+Hard-working is the path.
+
+Beer is also the goal.
